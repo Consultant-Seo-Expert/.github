@@ -4,7 +4,7 @@
 
 **Le consultant SEO**, un professionnel clé de l'e-marketing, se spécialise dans le positionnement stratégique des sites web sur les moteurs de recherche. L'objectif principal est d'accroître la visibilité et l'audience d'un site web en apparaissant dans les premières pages des résultats de recherche.
 
-[![Appeler le 06 52 70 07 50](https://via.placeholder.com/150x50?text=Appeler+06+52+70+07+50)](tel:+33652700750)
+[📞 Appeler le 06 52 70 07 50](tel:+33652700750)
 
 ### Responsabilités et Stratégies
 
@@ -31,7 +31,7 @@ Le consultant SEO peut travailler dans divers environnements : agences web, en f
 - **Niveau Bac +5 :** Masters en marketing, communication multimédia, et e-business.
 - **Niveau Bac +6 :** Mastères spécialisés en marketing digital et communication numérique.
 
-[![Appeler le 06 52 70 07 50](https://via.placeholder.com/150x50?text=Appeler+06+52+70+07+50)](tel:+33652700750)
+[📞 Appeler le 06 52 70 07 50](tel:+33652700750)
 
 ---
 
