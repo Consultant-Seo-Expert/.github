@@ -31,7 +31,7 @@ Le consultant SEO peut travailler dans divers environnements : agences web, en f
 - **Niveau Bac +5 :** Masters en marketing, communication multimédia, et e-business.
 - **Niveau Bac +6 :** Mastères spécialisés en marketing digital et communication numérique.
 
-[![Appeler le 06 52 70 07 50](https://img.shields.io/badge/-Appeler%20le%2006%2052%2070%2007%2050-blue?style=for-the-badge)](tel://+33652700750)
+[![Envoyer un message WhatsApp](https://img.shields.io/badge/-Envoyer%20un%20message%20WhatsApp-blue?style=for-the-badge)](https://wa.me/33652700750?text=Je%20souhaite%20contacter%20un%20Consultant%20Seo)
 
 ---
 
