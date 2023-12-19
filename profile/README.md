@@ -12,7 +12,7 @@
 - **Analyse Concurrentielle :** Identifier les concurrents et les cibles du site.
 - **Sélection de Mots-Clés :** Choisir des termes stratégiques pour le référencement.
 
-[![Un premier Audit SEO gratuit par téléphone au 06 52 70 07 50](https://img.shields.io/badge/-Appeler%20le%2006%2052%2070%2007%2050-blue?style=for-the-badge)](tel:+33652700750)
+[![Un premier Audit SEO gratuit par téléphone au 06 52 70 07 50](https://img.shields.io/badge/-Un%20premier%20Audit%20SEO%20gratuit%20par%20téléphone%20au%20le%2006%2052%2070%2007%2050-blue?style=for-the-badge)](tel:+33652700750)
 
 #### Domaines d'Expertise 🌐
 
