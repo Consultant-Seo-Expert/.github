@@ -4,7 +4,7 @@
 
 **Le consultant SEO**, un professionnel clé de l'e-marketing, se spécialise dans le positionnement stratégique des sites web sur les moteurs de recherche. L'objectif principal est d'accroître la visibilité et l'audience d'un site web en apparaissant dans les premières pages des résultats de recherche.
 
-[📞 Appeler le 06 52 70 07 50](tel:+33652700750)
+[![Appeler le 06 52 70 07 50](https://img.shields.io/badge/-Appeler%20le%2006%2052%2070%2007%2050-blue?style=for-the-badge)](tel://+33652700750)
 
 ### Responsabilités et Stratégies
 
@@ -31,7 +31,7 @@ Le consultant SEO peut travailler dans divers environnements : agences web, en f
 - **Niveau Bac +5 :** Masters en marketing, communication multimédia, et e-business.
 - **Niveau Bac +6 :** Mastères spécialisés en marketing digital et communication numérique.
 
-[📞 Appeler le 06 52 70 07 50](tel:+33652700750)
+[![Appeler le 06 52 70 07 50](https://img.shields.io/badge/-Appeler%20le%2006%2052%2070%2007%2050-blue?style=for-the-badge)](tel://+33652700750)
 
 ---
 
@@ -50,4 +50,4 @@ Pour comprendre le métier de consultant SEO, il est essentiel de saisir l'impor
 
 ---
 
-[Message WhatsApp](https://wa.me/33652700750?text=Je%20souhaite%20contacter%20un%20Consultant%20Seo)
+[![Envoyer un message WhatsApp](https://img.shields.io/badge/-Envoyer%20un%20message%20WhatsApp-blue?style=for-the-badge)](https://wa.me/33652700750?text=Je%20souhaite%20contacter%20un%20Consultant%20Seo)
