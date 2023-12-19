@@ -43,7 +43,7 @@ Pour comprendre le métier de consultant SEO, il est essentiel de saisir l'impor
 
 ---
 
-*Ce témoignage a été sponsorisé.*
+*Ce témoignage est issu d'une expérience de plus de 15 ans dans la recherche en Algorithmie Google.*
 
 ---
 
